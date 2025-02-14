@@ -1,4 +1,4 @@
 ### Certificate list
-- 정처기 필기 (2025.2.13) Completion
+- 정보처리기사 필기 (2025.2.13) Completion
 
 
